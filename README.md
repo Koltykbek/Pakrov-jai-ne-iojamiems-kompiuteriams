@@ -1,0 +1,1 @@
+# Pakrov-jai-ne-iojamiems-kompiuteriams
